@@ -41,6 +41,6 @@ Sanika Kshirsagar
 
 ## 📬 Contact
 
-Email: your-email@example.com
+Email: your-sanikakshirsagar10@gmail.com
 
 GitHub: https://github.com/Sanika-Kshirsagar29
